@@ -1,1 +1,1 @@
-# simonepellicciotti
+# Blog personale
